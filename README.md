@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @SapalChapagain.
+- 🤓 I'm a mathematics major
+- 🥅 Aspiring analyst/scientist in data 
